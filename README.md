@@ -1,0 +1,1 @@
+# msi-bravo-15-c7ve
